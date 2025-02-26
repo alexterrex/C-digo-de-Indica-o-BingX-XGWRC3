@@ -1,0 +1,1 @@
+# C-digo-de-Indica-o-BingX-XGWRC3
